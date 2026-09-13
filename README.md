@@ -1,1 +1,0 @@
-# Anal-tica-Empresarial-Integrada
